@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @hehui20628
 - 👀 I’m interested in weibo
 - 🌱 I’m currently learning english
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on how to all acc on ft
 - 📫 How to reach me X（you know its the new twitter keke)
 
 <!---
